@@ -6,4 +6,4 @@ When a statue arrives broken what do you normally do, you request either a refun
 2. They refuse point blank to give a refund. 
 3. They do issue a refund. 
 
-Main thing to ask, is it the sellers fault when a Product comes broken and quiet simiply yes it is no one pays for a broken statue. 
+Main thing to ask, is it the sellers fault when a Product comes broken and quiet simply yes it is no one pays for a broken statue/ unless it was broken to begin with. 
